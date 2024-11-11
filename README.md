@@ -5,3 +5,4 @@ CyberCamp https://docs.google.com/presentation/d/11B3i2mBeuIwgmFfudCxKe04PDU9pA0
 Антикоррупция https://docs.google.com/presentation/d/1a0satAwj2U0j2a05CWVE7kH5vygVMT3f/edit?usp=drive_link&ouid=111397672261629410874&rtpof=true&sd=true
 Призентация https://docs.google.com/presentation/d/1tdpHaSMzMJ-LXjdP2rgEy0Kt8P4vBZd-n25AzeOoiY0/edit?usp=drive_link
 LiberOffice https://drive.google.com/file/d/1MoHLLAS4UUDv3rCce_7E40K7FSQuUAzt/view?usp=drive_link
+презинтация о CeberCamp https://docs.google.com/presentation/d/1VMaR0ubN7hPyDbTDCc-XFxcDZiwUfXHiGONhm6Elzew/edit?usp=sharing
