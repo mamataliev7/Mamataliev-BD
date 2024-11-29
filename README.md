@@ -6,3 +6,4 @@ CyberCamp https://docs.google.com/presentation/d/11B3i2mBeuIwgmFfudCxKe04PDU9pA0
 Призентация https://docs.google.com/presentation/d/1tdpHaSMzMJ-LXjdP2rgEy0Kt8P4vBZd-n25AzeOoiY0/edit?usp=drive_link
 LiberOffice https://drive.google.com/file/d/1MoHLLAS4UUDv3rCce_7E40K7FSQuUAzt/view?usp=drive_link
 презинтация о CeberCamp https://docs.google.com/presentation/d/1VMaR0ubN7hPyDbTDCc-XFxcDZiwUfXHiGONhm6Elzew/edit?usp=sharing
+Контрольная работа https://docs.google.com/document/d/1gH_posqaPiK0O1E7DKMm3fqiogjb677IFZUthj511V8/edit?usp=drive_link
