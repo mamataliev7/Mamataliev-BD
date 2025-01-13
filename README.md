@@ -1,3 +1,4 @@
+1 Семестор
 Mamataliev7
 Задание по ОБЖ:https://docs.google.com/document/d/1lgf1MHhZErEC9TgpX-V_FN5UpTzxYKkDX6ekYaflKEs/edit?usp=drive
 CyberCamp https://docs.google.com/presentation/d/11B3i2mBeuIwgmFfudCxKe04PDU9pA040hwlu4u7CB6E/edit?usp=drive_link
