@@ -12,6 +12,5 @@ LiberOffice https://drive.google.com/file/d/1MoHLLAS4UUDv3rCce_7E40K7FSQuUAzt/vi
 Лекция https://docs.google.com/document/d/1KGk9IUTHaCWUt_xMesk8Qa2wofxtymJeiEbEwtS8RFE/edit?usp=drive_link
 Кибератака https://docs.google.com/document/d/1AnDj9TqkITdAKObEtFS2sMqixtlCIM3VF6ig8DFnfYo/edit?usp=drive_link
 Кейлогер https://docs.google.com/document/d/1I5qEhcfzz3OpOfy87ifJOG188VlDU7QI62ojuz_969c/edit?usp=drive_link
-Контрольная работа https://docs.google.com/document/d/1gH_posqaPiK0O1E7DKMm3fqiogjb677IFZUthj511V8/edit?usp=drive_link
 введение в программирование https://docs.google.com/document/d/1WN_eWo4bmMc0PeR6nwdNY9Ht_oksZwv9JTSdREAzXwM/edit?usp=drive_link
 Git https://docs.google.com/document/d/1UDHC8Tyqg10uXQyKHtATmGPjO00PqPLjMamSdZytNmQ/edit?usp=drive_link
